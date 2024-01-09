@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **shaifalisahu1306@gmail.com**
 
-- ⚡ Fun fact **I think I am funny**
+- ⚡ Fun fact **"I write better code when surrounded by fluffy pillows"**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
